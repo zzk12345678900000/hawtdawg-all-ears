@@ -18,3 +18,10 @@ ptential mats and friends all about the treats and toys
 that make your tail wag.
 
 When you're done, click "Save Changes" to show the world.
+
+
+## Photos are nice and all, but I don't see very well, How can I smell the other dogs?
+
+We regret that we are unable to offer our customer smell-o-vision at this thime.
+As soon as huamn technology catches up to dog noses, we'll be sure to add a scent feature to the app.
+In the meantime, why not meet up at the dog park to get a whiff of your new friend?
